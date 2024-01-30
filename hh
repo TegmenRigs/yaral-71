@@ -1,0 +1,1 @@
+zorunan güzellik olmuyor canım
